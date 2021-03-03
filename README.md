@@ -1,1 +1,0 @@
-# doof-blind-en-bewegingloos
